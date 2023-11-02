@@ -1,16 +1,13 @@
-### Hi there 👋
+# Syed Arshad 
 
-<!--
-**Crosser27/Crosser27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I Love Sports
 
-Here are some ideas to get you started:
+Klein Oak VITA
 
-- 🔭 I’m currently working on Tripple F
-- 🌱 I’m currently learning Computer Science 3
-- 👯 I’m looking to collaborate on Omegle
-- 🤔 I’m looking for help with Coding
-- 💬 Ask me about Anything
-- 📫 How to reach me: You have to know me
-- 😄 Pronouns: MAN
-- ⚡ Fun fact: I am tall
--->
+President of the Klein Oak eSports
+
+I Play MLC
+
+I love CS, Acounting, BIM
+
+Pharmacy tech
