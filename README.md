@@ -11,3 +11,9 @@ I Play MLC
 I love CS, Acounting, BIM
 
 Pharmacy tech
+
+### My favorite thibgs
+Color - Blue
+Number - 27
+Video Game - Fortnite
+Favorite movie - Barbie
